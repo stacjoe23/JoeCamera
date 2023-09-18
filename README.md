@@ -1,4 +1,4 @@
-[About Me](https://stacjoe23.github.io/JoeCamera/about_me)
+[HOA Letter](https://stacjoe23.github.io/JoeCamera/HOA_Candidate)
 
 ![](http://i.imgur.com/y8g506n.png?1)
 
