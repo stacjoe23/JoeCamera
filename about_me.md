@@ -1,4 +1,4 @@
-### Letter of Candidacy for Courts of Weymouth Home Owners Association Board Member
+### *Letter of Candidacy for Courts of Weymouth Home Owners Association Board Member*
 
 
 Dear Courts of Weymouth Homeowners,
