@@ -6,7 +6,7 @@ Dear Courts of Weymouth Homeowners,
 I am writing to express my sincere interest in serving as a board member for our esteemed Home Owners Association (HOA). I believe that my dedication, experience, and vision for enhancing our community make me a strong candidate for this important role.
 
 ## **Experience and Dedication**
-Over the years, I have actively participated in various community initiatives and events within the Courts of Weymouth. My involvement has allowed me to gain valuable insights into the needs and aspirations of our residents. Through this experience, I have come to understand the importance of a well-functioning HOA in maintaining the quality of life we all cherish.
+Over the years, as a resident of The Courts of Weymouth, I have gained valuable insights into the needs and aspirations of our residents. Through this experience, I have come to understand the importance of a well-functioning HOA in maintaining the quality of life we all cherish.
 
 ## **Strong Communication and Collaboration Skills**
 Effective communication is the cornerstone of any successful community. I am committed to fostering an environment of open dialogue, where every voice is heard and every opinion respected. I believe in the power of collaboration and am confident in my ability to work constructively with fellow board members and residents to achieve common goals.
