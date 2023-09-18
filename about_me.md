@@ -1,6 +1,3 @@
-tags: [HOA, Board]
----
-
 # Joe Camera (Courts of Weymouth)
 
 # Letter of Candidacy for Home Owners Association Board Member
