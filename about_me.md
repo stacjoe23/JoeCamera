@@ -36,4 +36,4 @@ Thank you for considering my candidacy. I look forward to the possibility of ser
 
 Warm regards,
 
-\Joe Camera\
+Joe Camera
